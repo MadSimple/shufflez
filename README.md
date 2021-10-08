@@ -1,1 +1,1 @@
-# shufflez.github.io
+# Shufflez privacy policy
